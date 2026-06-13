@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @daFRAKKINpope
-"If I know one thing, it's that I know nothing."
+"Doing my best, everyday.."
 
 <!---
 daFRAKKINpope/daFRAKKINpope is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
